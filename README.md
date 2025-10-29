@@ -1,6 +1,6 @@
 # Min Htet Nay Hlaing
 >Payap University, 
->Ierntnatioanl College,
+>Internatioanl College,
 >Chiang mai, Thailand
 # Objective
 >Enthusiastic English Communication student seeking a teaching internship to gain hands-on classroom experience, support student learning, and develop effective teaching skills in English language instruction.
