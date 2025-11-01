@@ -1,3 +1,4 @@
+<img src="https://github.com/yourusername/teaching-cv/blob/main/profile.jpg" alt="Htaw Janu" width="150" style="border-radius:10px;">
 # Min Htet Nay Hlaing
 
 **Location:** Chiang Mai, Thailand  
