@@ -6,15 +6,15 @@
 -  Location: Nong Pa Khrang, Mueang Chiang Mai 50000, Thailand
 
 ## Objective
->Enthusiastic English Communication student seeking a teaching internship to gain hands-on classroom experience, support student learning, and develop effective teaching skills in English language instruction.
+Enthusiastic English Communication student seeking a teaching internship to gain hands-on classroom experience, support student learning, and develop effective teaching skills in English language instruction.
 ## Education
 **Payap University, Chiang Mai, Thailand**
 
- Bachelor of Arts in English Communication, Expected Graduation: 2027
- - Relevant Courses: Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
+Bachelor of Arts in English Communication, Expected Graduation: 2027
+- Relevant Courses: Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
 
 **Mon National College, Mon State, Myanmar**
-  - Associate Degree in Education in Teaching, 2024
+- Associate Degree in Education in Teaching, 2024
 
 **Basic Education High School, Kanni, Myanmar** 
 - High School Diploma | Graduated: 2019
