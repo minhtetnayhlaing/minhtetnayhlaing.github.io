@@ -3,8 +3,9 @@
 # Min Htet Nay Hlaing
 Aspiring English Communication student
 
-Nong Pa Khrang, Mueang Chiang Mai 50000, Thailand
-
+📍 Nong Pa Khrang, Mueang Chiang Mai 50000, Thailand  
+📧 htetnayhlaing991@gmail.com  
+📞 +66 17385148 
 Enthusiastic English Communication student seeking a teaching internship to gain hands-on classroom experience, support student learning, and develop effective teaching skills in English language instruction.
 ## Education
 **Payap University, Chiang Mai, Thailand**
@@ -31,6 +32,3 @@ Enthusiastic English Communication student seeking a teaching internship to gain
 - Teaching and tutoring English  
 - Reading and exploring literature  
 - Storytelling and creative writing
-## Contact Info
-- Phone: 0617385148
-- Email: htetnayhlaing991@gmail.com
