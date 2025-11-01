@@ -1,4 +1,5 @@
-<img src="https://minhtetnayhlaing.github.io/blob/main/Minhtet.jpg" width="20%" align="right" style="border-radius:10px;">
+<img src="https://minhtetnayhlaing.github.io/Minhtet.jpg" width="20%" align="right" style="border-radius:10px;">
+
 # Min Htet Nay Hlaing
 
 **Location:** Chiang Mai, Thailand  
