@@ -11,7 +11,7 @@
 **Payap University, Chiang Mai, Thailand**
 * Bachelor of Arts in English Communication* | Expected Graduation: 2027
 - Relevant Courses:Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
-**Basic Education High School, Kanni, Myanmar**  
+*Basic Education High School, Kanni, Myanmar* 
 - High School Diploma | Graduated: 2019
 ## Skills
 - English teaching and communication skills  
