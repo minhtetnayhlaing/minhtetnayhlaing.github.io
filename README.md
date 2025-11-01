@@ -10,8 +10,8 @@
 ## Education
 **Payap University, Chiang Mai, Thailand**
 
-Bachelor of Arts in English Communication, Expected Graduation: 2027
-- Relevant Courses: Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
+ Bachelor of Arts in English Communication, Expected Graduation: 2027
+ - Relevant Courses: Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
 
 **Mon National College, Mon State, Myanmar**
   - Associate Degree in Education in Teaching, 2024
