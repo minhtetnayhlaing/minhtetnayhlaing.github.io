@@ -10,8 +10,10 @@ Enthusiastic English Communication student seeking a teaching internship to gain
 **Payap University, Chiang Mai, Thailand**
 - Bachelor of Arts in English Communication Expected Graduation: 2027
 - Relevant Courses: Methodology of English Language Teaching, Composition, Intercultural Communication, Linguistics, Oral Presentation and Communication
+
 **Mon National College, Mon State, Myanmar**
 - Associate Degree in Education in Teaching, 2024
+
 **Basic Education High School, Kanni, Myanmar** 
 - High School Diploma | Graduated: 2019
 ## Skills
